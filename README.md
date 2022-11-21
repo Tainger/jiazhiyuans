@@ -2,7 +2,7 @@
 
 Hi everyone, This is Rocky, nice to meet you!
 
-My English is very well, had beeter not ask one more time！
+My English is very well, had better not ask one more time！
 
 - 🔭 你好呀
 
