@@ -4,7 +4,7 @@ This is BonBon Inc.
 
 Hi everyone, This is Rocky, nice to meet you！
 
-My English is truly very well, had better not ask me one more time！
+My English is truly very well, had better not ask me one more time！ 🤣
 
 When I am serious, American is also afraid of my English!
 
