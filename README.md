@@ -8,7 +8,7 @@ My English is truly very well, had better not ask me one more time！
 
 When I am serious, American is also afraid of my English! 🤣
 
-I have many ideas to realize, and try to find more people who appreciate with web3 Analysis to join us！
+I have many ideas to realize, and try to find more people who appreciate with web3 Data Analysis to join us！
 
 React, JAVA, Spark or even printing Hello world, we all welcome！
 
